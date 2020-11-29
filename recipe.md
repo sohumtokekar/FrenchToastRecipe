@@ -1,0 +1,1 @@
+Drop egg yolk, spoonful of milk, pinch of salt, some pepper, and spices of your choice into a bowl and mix well.  Drop bread into bowl and coat the bread in the solution.  Then once the bread is fully covered in the mixture,  put it on a  oiled non stick pan and toast each side till golden brown and serve on a plate.  
